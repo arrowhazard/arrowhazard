@@ -26,4 +26,4 @@ Friends
 if i forgot to add you feel free to let me know
 
   Ꮺ awards
-  [1](https://github.com/pt-players) [2](https://github.com/pt-walk-of-fame) [3](https://github.com/pt-hall-of-media) [4](https://github.com/pt-fashion) [5](https://github.com/style-town) [5](https://github.com/ponychievements)
+  [1](https://github.com/pt-players) [2](https://github.com/pt-walk-of-fame) [3](https://github.com/pt-hall-of-media) [4](https://github.com/pt-fashion) [5](https://github.com/style-town) [6](https://github.com/ponychievements)
