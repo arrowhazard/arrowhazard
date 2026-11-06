@@ -22,7 +22,7 @@ Friends
 [@pawnresearch](https://github.com/pawnresearch) [@rubicarbuncle](https://github.com/rubicarbuncle) [@reggression](https://github.com/reggression) [@suujimatsu](https://github.com/suujimatsu)
 [@spacebombed](https://github.com/spacebombed) [@Seasaed](https://github.com/Seasaed) [@syzxuz](https://github.com/syzxuz) [@tellthatmick](https://github.com/tellthatmick)
 [@tiniqq](https://github.com/tiniqq) [@traummannn](https://github.com/traummannn) [@tamonsbside](https://github.com/tamonsbside) [@vampire-cheshire](https://github.com/vampire-cheshire)
-[@vysters](https://github.com/vysters) [@wednesdayaddamsss](https://github.com/wednesdayaddamsss) [@WhiskersDream](https://github.com/WhiskersDream)
+[@vysters](https://github.com/vysters) [@wednesdayaddamsss](https://github.com/wednesdayaddamsss) [@WhiskersDream](https://github.com/WhiskersDream) [@5uguru](https://github.com/5uguru)
 if i forgot to add you feel free to let me know
 
   Ꮺ awards
