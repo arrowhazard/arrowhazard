@@ -3,7 +3,7 @@
 
 <img align="center" width="285" height="200" src="https://files.catbox.moe/1k9ai0.png"> 
 
-<sub>[**information**](https://rentry.co/-deviants)⠀⠀[**ata**](https://arrowhazard.atabook.org/)⠀⠀[**rentry by noah**](https://rentry.co/norman-jayden)</sub> 
+<sub>[**information**](https://rentry.co/jericho)⠀⠀[**ata**](https://arrowhazard.atabook.org/)⠀⠀[**rentry by noah**](https://rentry.co/norman-jayden)</sub> 
 
 <div align="center">
 
